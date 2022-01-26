@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BiBi619
-- 👀 I’m interested in learning the basics. I have ADHD and am dyslexic so I'm not the best at spelling :( 
-- 🌱 I’m currently learning how to make my setup more secure.
+- 👀 ADHD & dyslexic.
+- 🌱 Adult learner.
 - 💞️ I’m looking to collaborate on accessibilty projects. 
 - 📫 How to reach me DM.
 
