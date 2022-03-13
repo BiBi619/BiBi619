@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BiBi619
 - 👀 ADHD & dyslexic.
 - 🌱 Adult learner.
-- 💞️ I’m looking to collaborate on accessibility projects. 
+- 💞️ I’m looking to collaborate on accessibility projects.
 - 📫 How to reach me DM.
 
 <!---
